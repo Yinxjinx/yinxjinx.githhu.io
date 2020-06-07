@@ -1,1 +1,1 @@
-# yinxjinx.githhub.io
+# yinxjinx.github.io
